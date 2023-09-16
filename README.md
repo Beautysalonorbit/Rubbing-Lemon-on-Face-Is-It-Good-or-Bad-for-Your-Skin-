@@ -1,2 +1,4 @@
-# Rubbing-Lemon-on-Face-Is-It-Good-or-Bad-for-Your-Skin-
+Rubbing-Lemon-on-Face-Is-It-Good-or-Bad-for-Your-Skin-
 Lemons, celebrated for their culinary and beverage contributions, have also found their way into skincare discussions
+The question of whether it's beneficial or detrimental to rub lemon on your face lingers in the beauty world. This exploration aims to dissect the pros and cons of this practice. Lemon's natural acidity offers exfoliation benefits and a vitamin C boost for brighter skin, potentially aiding acne control and dark spot lightening. However, the high acidity can irritate sensitive skin, increase sun sensitivity, and lead to dryness. To tread this citrus path safely, dilution, patch tests, and sun protection are crucial. Ultimately, the decision to use lemon on your face should consider your skin's unique needs and potential risks, ensuring your quest for a glowing complexion is well-informed and balanced.
+https://beautysalonorbit.com/rubbing-lemon-on-face/
